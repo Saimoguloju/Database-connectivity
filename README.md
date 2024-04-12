@@ -12,7 +12,7 @@ You can contact me on:
 4. Medium --> https://medium.com/@saimoguloju2
 5. Tableau --> https://public.tableau.com/app/profile/moguloju.sai
 6. Email --> saimoguloju2@gmail.com
-7. Cell --> +919398053071
+7. Cell --> +91 9398053071
 
 Other Social Media pages:
 1. X.com --> https://twitter.com/SmartMachines1?t=mZg1j9Z_V8WWzvlkl4027Q&s=09
